@@ -12,4 +12,4 @@ Positive social impact: Social supply chains can benefit the communities and sta
 
 ---
 
-![Bulb](../diego-ph-fIq0tET6llw-unsplash.jpg)
+![Random Picture](../istockphoto-95442265-1024x1024.jpg)
