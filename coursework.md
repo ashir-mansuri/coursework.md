@@ -9,3 +9,7 @@ Improved risk management: Social supply chains can help companies identify and m
 Increased innovation: Social supply chains can encourage companies to innovate and develop more sustainable and responsible products and processes. This can lead to cost savings, revenue growth, and competitive advantage. According to a report by the United Nations Global Compact, sustainable innovation can drive revenue growth of up to 15%.
 
 Positive social impact: Social supply chains can benefit the communities and stakeholders involved in the supply chain, such as workers, suppliers, and local communities. This can lead to improved social conditions, reduced inequality, and increased economic development. According to a report by the World Economic Forum, socially responsible supply chains can contribute to sustainable development goals.
+
+---
+
+![Bulb](../diego-ph-fIq0tET6llw-unsplash.jpg)
